@@ -29,7 +29,13 @@
 
 
 
-──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, etc etc, just ask and i might be in it!!![tumblr_889cc2c5d3d1107d785e25733f7c5874_44b87ea2_75](https://github.com/user-attachments/assets/59e04918-2c6e-470d-9f3f-102d8442ce8d)
+──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, etc etc, just ask and i might be in it!!!
+
+
+──── PLEASEEE if you know any of those pieces of media ill just like immediately friend you without a question![tumblr_b3e0f3d4d04e1ee17cc30eab013e01a3_e357c50b_75](https://github.com/user-attachments/assets/b72e02f3-7e2e-4c24-bd71-46e35b5be9d7)
+
+
+[tumblr_889cc2c5d3d1107d785e25733f7c5874_44b87ea2_75](https://github.com/user-attachments/assets/59e04918-2c6e-470d-9f3f-102d8442ce8d)
 
          
          
