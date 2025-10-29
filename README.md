@@ -1,11 +1,12 @@
 <img src="https://64.media.tumblr.com/0cb20cbb68d06d75b99221dfb952b0b4/3c74d06b377fdc9b-7a/s400x600/32b86fffcb3ec40311e817047494ae6192fdbe94.webp"/> </p><p> 
 
 ![tumblr_25af87300f0c0e8e2a8fea4dc5957ed3_190cc3b6_75](https://github.com/user-attachments/assets/010d6632-db9f-4bd3-8075-ba6696b5ee0f)
+![tumblr_c321d0734107010dbdf7be31aa847120_cdbdbf10_75](https://github.com/user-attachments/assets/83453b68-bea1-45e8-808b-6d86284f7294)
 
          
          
          
- <img src="https://64.media.tumblr.com/25af87300f0c0e8e2a8fea4dc5957ed3/5f73dcc39478e4c2-dc/s75x75_c1/190cc3b64ac178024550406bf2ee46f6ce574280.gifv"/> </p><p>    ──── hiya ! im miles / monty, i go by he/they
+    ──── hiya ! im miles / monty, i go by he/they
 
  
 
