@@ -19,6 +19,7 @@
 ![tumblr_4b5ad89a57bf148f39c7a4dedafa9a29_d0b36b62_250](https://github.com/user-attachments/assets/81d4425c-2e75-4b60-9122-382586cc5977)
 ![tumblr_e6e5560fc6219fa87f39dd73e902a886_1e868279_250](https://github.com/user-attachments/assets/e2315353-76d7-43d5-b6a6-955f4b092d1c)
 ![tumblr_3fbd7e4555e444305d751f538e4c52b6_e8a09286_100](https://github.com/user-attachments/assets/51ffd335-1789-4e23-a674-a4e3374ef246)
+![tumblr_7608660d20b3172d8d794ef7ee31a50a_b1c4e424_250](https://github.com/user-attachments/assets/a8918dba-b215-4a5e-8d94-c407bbbbe8ca)
 
     
          
@@ -40,7 +41,7 @@
 
 
 
-──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, etc etc, just ask and i might be in it!!!
+──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, OINGO BOINGO, hannibal, silence of the lambs, etc etc, just ask and i might be in it!!!
 
 
 ──── PLEASEEE if you know any of those pieces of media ill just like immediately friend you without a question![tumblr_b3e0f3d4d04e1ee17cc30eab013e01a3_e357c50b_75](https://github.com/user-attachments/assets/b72e02f3-7e2e-4c24-bd71-46e35b5be9d7) 
@@ -61,6 +62,8 @@
 <img width="99" height="56" alt="tumblr_185410de620e380d9401c6567b053d99_64dc22b3_100" src="https://github.com/user-attachments/assets/006d5e33-7da2-4303-81ff-5964c188809a" />
 <img width="99" height="56" alt="tumblr_53705a0c19ffa93fd123451b00977027_b3273e1e_100" src="https://github.com/user-attachments/assets/1440191b-6bb6-47d1-bc19-2a2aa88871c1" />
 <img width="99" height="55" alt="tumblr_fe176172cd625cd3acebc20836f182c8_1737db6a_100" src="https://github.com/user-attachments/assets/a4b50685-26ce-4466-bccc-b05f6209ed87" />
+![tumblr_f41a566cff5ba95b3d8be7407094b476_9666bdb1_100](https://github.com/user-attachments/assets/d31878f2-8faf-4351-ad39-b51447ad77e9)
+![tumblr_f3137db19bcd9c694d97f4e0ab8443fc_4c8b49ca_100](https://github.com/user-attachments/assets/9d854763-f634-4b7f-8d3f-9e19f6b55dfc)
 
 
 ![tumblr_351bd27c6adbc559833453aeed10188e_a64dbaf6_400](https://github.com/user-attachments/assets/d091bc12-c942-4768-9330-24afe474d5fb)
