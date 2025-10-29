@@ -11,11 +11,12 @@
 <img src="https://64.media.tumblr.com/4b5ad89a57bf148f39c7a4dedafa9a29/3c74d06b377fdc9b-00/s250x400/d0b36b6220e86aac980837cda4b47305b9407042.gifv"/> </p><p> 
 
  ⤷  i AM a teenager so please keep that in mind when interacting with me
+ 
 
 <img src="https://64.media.tumblr.com/40a8e0f822860b8420e7e281a8242be9/3c74d06b377fdc9b-99/s400x600/92ec959669029beae03cca76907139cd697ee0a8.pnj"/> </p><p> 
 
 
-──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, etc etc, just ask and i might be in it!!
+──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, etc etc, just ask and i might be in it!!
          
          
          
