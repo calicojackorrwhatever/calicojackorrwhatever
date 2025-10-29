@@ -32,7 +32,8 @@
 
 
 
- ⤷  i AM a teenager so please keep that in mind when interacting with me
+ ⤷  i AM a teenager so please keep that in mind when interacting with me![tumblr_bff0c3a62c932359a43ac2ce14ec4668_a7889844_75](https://github.com/user-attachments/assets/859042b7-f7e0-4d2c-a42f-392c213b00d7)
+
  
 
 ![tumblr_c2f34775216159eb5c9ea0ac5363093e_76ad8010_400](https://github.com/user-attachments/assets/6ffedb9a-74bc-4a02-b9ad-4f72d420dd41)
@@ -60,11 +61,16 @@
 
 ![tumblr_d3e9da4bf128a30c83f73dceaabd54e6_52a8c91d_100](https://github.com/user-attachments/assets/7128b250-79cc-4595-9e5d-903908d07774)
 
+<img width="99" height="57" alt="tumblr_66b08cf44b65dda00d23d616181a82dc_04ddfc10_100" src="https://github.com/user-attachments/assets/42dfcb15-496a-4da4-b83e-6ddf5a23cbfa" />
 
+![tumblr_bbf7b440da547fe2f2223728245555e4_3acc8e05_100](https://github.com/user-attachments/assets/913db44e-742b-44fb-9f74-116031062c03)
 
+<img width="99" height="56" alt="tumblr_185410de620e380d9401c6567b053d99_64dc22b3_100" src="https://github.com/user-attachments/assets/006d5e33-7da2-4303-81ff-5964c188809a" />
 
-         
-         
+<img width="99" height="56" alt="tumblr_53705a0c19ffa93fd123451b00977027_b3273e1e_100" src="https://github.com/user-attachments/assets/1440191b-6bb6-47d1-bc19-2a2aa88871c1" />
+
+<img width="99" height="55" alt="tumblr_fe176172cd625cd3acebc20836f182c8_1737db6a_100" src="https://github.com/user-attachments/assets/a4b50685-26ce-4466-bccc-b05f6209ed87" />
+
    ![tumblr_351bd27c6adbc559833453aeed10188e_a64dbaf6_400](https://github.com/user-attachments/assets/d091bc12-c942-4768-9330-24afe474d5fb)
 
 
