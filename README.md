@@ -6,7 +6,7 @@
 
 ![tumblr_236e2e76661d04512cde9075e612dde0_b7db683f_250](https://github.com/user-attachments/assets/6afb0564-ef56-44ca-a610-f74776ccb848)![tumblr_2c9abed929b0b46c04c70629eeb44fb1_a41a2ecb_250](https://github.com/user-attachments/assets/bf713aeb-26bb-418e-a550-053af93dd04a)
 ![tumblr_236e2e76661d04512cde9075e612dde0_b7db683f_250](https://github.com/user-attachments/assets/f70d6522-fd19-4684-9e20-156870371220)
-
+![tumblr_57bf511b17b05cdb3dde016efa27b499_310c26d8_250](https://github.com/user-attachments/assets/b64e362b-b6bf-4dac-bd8d-2e9809641e80)
 
 
  ![tumblr_4b5ad89a57bf148f39c7a4dedafa9a29_d0b36b62_250](https://github.com/user-attachments/assets/81d4425c-2e75-4b60-9122-382586cc5977)![tumblr_e6e5560fc6219fa87f39dd73e902a886_1e868279_250](https://github.com/user-attachments/assets/e2315353-76d7-43d5-b6a6-955f4b092d1c)
@@ -25,6 +25,7 @@
  ⤷  i AM a teenager so please keep that in mind when interacting with me
  
 
+![tumblr_c2f34775216159eb5c9ea0ac5363093e_76ad8010_400](https://github.com/user-attachments/assets/6ffedb9a-74bc-4a02-b9ad-4f72d420dd41)
 
 
 
