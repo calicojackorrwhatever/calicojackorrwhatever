@@ -42,7 +42,7 @@ free palestine![tumblr_f9984b4d06173092268a7b6d28bebe2b_20d64f19_75](https://git
 
 
 
- ⤷  i AM a teenager so please keep that in mind when interacting with me![tumblr_bff0c3a62c932359a43ac2ce14ec4668_a7889844_75](https://github.com/user-attachments/assets/859042b7-f7e0-4d2c-a42f-392c213b00d7)
+ ⤷  i AM a minor so please keep that in mind when interacting with me! [tumblr_bff0c3a62c932359a43ac2ce14ec4668_a7889844_75](https://github.com/user-attachments/assets/859042b7-f7e0-4d2c-a42f-392c213b00d7)
 
  
 
