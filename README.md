@@ -33,7 +33,7 @@ free palestine![tumblr_f9984b4d06173092268a7b6d28bebe2b_20d64f19_75](https://git
     
          
          
-    ──── hiya ! im miles / monty, i go by he/they![tumblr_4369c4316177a913a16ed6b69c753565_9409e830_75](https://github.com/user-attachments/assets/38256e0d-e639-43f5-a300-64d0bac37388)<img width="31" height="22" alt="tumblr_65764ddb066ee12a0cd036247d393ede_4d6550ea_75" src="https://github.com/user-attachments/assets/e9433c38-fe69-4cd3-9a57-5f2670ea1a40" />
+    ──── hiya ! im miles / miguel, i go by he/him![tumblr_4369c4316177a913a16ed6b69c753565_9409e830_75](https://github.com/user-attachments/assets/38256e0d-e639-43f5-a300-64d0bac37388)<img width="31" height="22" alt="tumblr_65764ddb066ee12a0cd036247d393ede_4d6550ea_75" src="https://github.com/user-attachments/assets/e9433c38-fe69-4cd3-9a57-5f2670ea1a40" />
 
 
    ![tumblr_2cabe334232c20426d8247964fe024f7_21bdaef3_100](https://github.com/user-attachments/assets/6c666844-789e-4056-9683-127699e9cb05)
@@ -42,7 +42,7 @@ free palestine![tumblr_f9984b4d06173092268a7b6d28bebe2b_20d64f19_75](https://git
 
 
 
- ⤷  i AM a minor so please keep that in mind when interacting with me! [tumblr_bff0c3a62c932359a43ac2ce14ec4668_a7889844_75](https://github.com/user-attachments/assets/859042b7-f7e0-4d2c-a42f-392c213b00d7)
+ ⤷  i AM a minor so please keep that in mind when interacting with me![tumblr_bff0c3a62c932359a43ac2ce14ec4668_a7889844_75](https://github.com/user-attachments/assets/859042b7-f7e0-4d2c-a42f-392c213b00d7)
 
  
 
@@ -50,7 +50,7 @@ free palestine![tumblr_f9984b4d06173092268a7b6d28bebe2b_20d64f19_75](https://git
 
 
 
-──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, OINGO BOINGO, hannibal, silence of the lambs, etc etc, just ask and i might be in it!!!
+──── my main fandoms areee ! : rdr 1 & 2 obviously, ofmd, twau, wwdits, xmen, brokeback mountain, but im a cheerleader, tcm, rtc, falsettos, dc, marvel, OINGO BOINGO, hannibal, silence of the lambs, gnb, etc etc, just ask and i might be in it!!!
 
 
 ──── PLEASEEE if you know any of those pieces of media ill just like immediately friend you without a question![tumblr_b3e0f3d4d04e1ee17cc30eab013e01a3_e357c50b_75](https://github.com/user-attachments/assets/b72e02f3-7e2e-4c24-bd71-46e35b5be9d7) 
